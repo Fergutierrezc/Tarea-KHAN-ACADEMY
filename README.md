@@ -1,1 +1,0 @@
-# Tarea-KHAN-ACADEMY
